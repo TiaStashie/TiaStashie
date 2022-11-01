@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TiaStashie
 - 👀 I’m interested in data, ei & scalability
-- 🌱 I’m currently learning to be a coach and hone my upskilling awesomeness
+- 🌱 I’m currently learning to be a COO, coach to wonderful females and hone my managing up awesomeness
 - 💞️ I’m looking to collaborate on true innovation
 - 📫 How to reach me tia@cipherstash.com
 
