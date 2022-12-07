@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TiaStashie
-- 👀 I’m interested in data, ei & scalability
+- 👀 I’m interested in data, sales, customer success, ei & scalability
 - 🌱 CoS, Startmate Coach and honing my managing up/across awesomeness
 - 💞️ I’m looking to collaborate on true innovation
 - 📫 How to reach me tia@cipherstash.com
